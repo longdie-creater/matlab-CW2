@@ -1,4 +1,4 @@
-%Jiayi Wei 20513778
+%Jiayi Wei 20513778 ssyjw20@nottingham.edu.cn
 
 % Reflective Statement:
 
